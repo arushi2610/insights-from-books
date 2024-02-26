@@ -1,6 +1,5 @@
 # Women in Tech
-<hr>
-**by Tarah Wheeler Van Vlack**
+*by Tarah Wheeler Van Vlack*
 
 ## Jobs
 - First line of job description is what the job is about. Rest all are preferred skills. 
@@ -11,7 +10,7 @@
 - Do something that is meaningful to you. Your own passion for the subject will help you as you persuade other people to be better. 
 - If you say that you can do it, show that you can do it in your portfolio. 
 - Having a job gives you a sense of who you are. 
-- Say yes to opportuities that cross your path. Especially those that require you to learn something new. 
+- Say yes to opportunities that cross your path. Especially those that require you to learn something new. 
 
 ## Public Speaking
 - Humor is the universal solution to a bored audience. 
@@ -24,20 +23,20 @@
 - A lot of people will listen to you as a leader and as a representative of your company. Be mindful of the image you're presenting. 
 - Women are often uncomfortable acknowledging that they have power and authority. 
 - A leader's job is to make good decisions about everything. However you make decisions, include both ethics and practicality and constantly refine. 
-- When putting a team together, mix of personalities and level of respect for each other's skills is very important. 
+- When putting a team together, a mix of personalities and level of respect for each other's skills is very important. 
 - As a leader, it's your responsiblity to take care of your people. 
 
 ## Entrepreneurship
 - One of the most frightening things to deal with as you're starting something is that somewhere, some other genius is working on the same idea you are. 
 - Do not get so caught up in your idea that you forget to produce. 
 - Worry about only two things: talk to users to find out what they want & iterate your working product ASAP.
-- Take some time to work on yourself, your abilities, your sense of responsibilityand your ability to solve conflicts before jumping into the startup world. 
+- Take some time to work on yourself, your abilities, your sense of responsibility and your ability to solve conflicts before jumping into the startup world. 
 - Startups are the only real way for a woman to get power in tech. 
 
 ## Co-Founder
 - Setting goals and achieveing them is only satisafactory and realistic when you have someone to share them with on a professional level. 
 - With co-founder, you are working towards a common goal. You should have someone to motivate you and rely on when you're unavailable or not at your best.
-- Start with someone who you think works as much or harder than you, whose skills compliment yours, and who has excellent communication skills. 
+- Start with someone who you think works as much or harder than you, whose skills complement yours, and who has excellent communication skills. 
 - Business and hardwork in a startup can drain and exhaust you. Having a solid partners can lift that burden. 
 - All partners should know at least some part of how to do each other's tasks. 
 - With co-founder, don't be jealous and accept your roles in advance. 
