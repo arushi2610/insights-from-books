@@ -65,6 +65,7 @@
 - Not knowing what to do next is a side effect of living an exciting life where you can have a real impact on people. 
 - Develop your sense of judgement about people to the point that you've learned to trust your instincts about someone's charachter.
 - Failure is inevitable. You cannot possibly succeed at everything. 
-- It's good to have competition. It moves you to work harder. 
+- It's good to have competition. It moves you to work harder.
+- Normal people don't have an exciting life. 
 - Your physical and mental well-being are the fuel that lets you pursue your dreams; maintain them diligently. 
 - There is a price to success and it is contstant criticism from others. 
