@@ -20,7 +20,7 @@
 - Whatever you hear, over and over will be at the forefront of your consciousness.
 
 ## What Fear Makes Us Do
-Do the thing you fear and the death of fear is certain.
+- Do the thing you fear and the death of fear is certain.
 - If you want to be successful, you must willing to be uncomfortable.
 - Consider yourself an immediate winner when you take the first step and do the thing you fear.
 - The only way to escape from the poison of fear is action.
@@ -45,7 +45,7 @@ Do the thing you fear and the death of fear is certain.
 - When one door shuts, there is always a better one waiting to be opened.
 - Problem's are often life's way of letting you know that you're off course and need to take corrective action.
 - Every adversity carries with it the seed of an equivalent or greater benefit.
-- - We percieve falling off as a bad thing rather than an essential part of achieving our goal.
+- We percieve falling off as a bad thing rather than an essential part of achieving our goal.
 - To reach your goal, you must be committed to doing what it takes to get there. Even if it means putting up with negative feedback or falling.
 - Have the guts to confront your fears, because that's where your potential will be developed - by doing things you're afraid to do.
 
@@ -54,8 +54,8 @@ Do the thing you fear and the death of fear is certain.
 - We become part of what we are around.
 - Your friends will stretch your vision or choke your dreams.
 - Human beings are like sponges, we 'soak up' whatever people around us are saying.
-- - As adults, most of us become a lot more concerned about the opinions of others, often hesitating because people may laugh at us or criticize us.
-  - - Resist the temptation to compare your progress with that of anyone else. You'll advance faster than some, and slower than others.
+- As adults, most of us become a lot more concerned about the opinions of others, often hesitating because people may laugh at us or criticize us.
+- Resist the temptation to compare your progress with that of anyone else. You'll advance faster than some, and slower than others.
 - Surround yourself with people who support and believe in you.
 
 ## The Power of Taking Action
@@ -83,4 +83,4 @@ Do the thing you fear and the death of fear is certain.
 - Significant results usually don't show up immediately.
 - You'll have to put in a lot before you begin reaping the awards.
 - You have the potential to become more than you ever dreamed.
-- Go ahead - believe in yourself. Have the courage and persistence to follow your dreams. 
+- Go ahead & believe in yourself. Have the courage and persistence to follow your dreams. 
